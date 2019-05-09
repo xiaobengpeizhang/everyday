@@ -1,1 +1,1 @@
-# everyday
+# everyday practice
